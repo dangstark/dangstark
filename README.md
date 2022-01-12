@@ -1,0 +1,1 @@
+I am a Marketer, Designer, Video Editor, Photograher & Developer :D. The best skills I have are graphic design, video editing. I have at least 3 years of experience working in large and small companies. My hobby is traveling. My dream is to become an influencer in the community.
